@@ -1,0 +1,2 @@
+# khong
+rộng lớn
